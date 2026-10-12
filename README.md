@@ -5,7 +5,7 @@
 
 🚀 Sobre Mim
 
-🔭 Atualmente, trabalhando no meu projeto para o CloudStream.
+🔭 Atualmente, trabalhando atualmente em projetos diversos envolvendo o eco-sistema Android e Web.
 
 🌱 Sempre aprendendo novas tecnologias.
 
