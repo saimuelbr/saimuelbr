@@ -1,7 +1,3 @@
-👋 Eai, me chamo Samuel
-
-
----
 
 🚀 Sobre Mim
 
